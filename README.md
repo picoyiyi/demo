@@ -15,3 +15,4 @@ kindle数据线丢了
 7-10居然反弹了？？
 我真是韭菜，10号一割，11号就开始反弹了。。。现在我看好长安汽车了!
 还看好比亚迪和京东方。
+![1983488370](https://github.com/user-attachments/assets/b8c0c2cf-be1d-43d2-ad55-640a1ada59c8)
