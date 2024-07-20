@@ -18,3 +18,4 @@ kindle数据线丢了
 ![1983488370](https://github.com/user-attachments/assets/b8c0c2cf-be1d-43d2-ad55-640a1ada59c8)
 2024-7-16减仓长安汽车！
 ![第二天](https://github.com/user-attachments/assets/cc1f8c71-c688-4b82-80e5-7af8451cf12e)
+红四天，一天就绿回去了
